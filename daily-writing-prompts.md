@@ -1,0 +1,23 @@
+# A list of potential daily writing prompts
+
+- [ ] What would you have to change about your life if you decided to never lie again?
+- [ ] How important to you is honesty?
+- [ ] Do you ever lie to your journal?
+- [ ] What, ten years from now, do you think you’ll  look back and decide you’ve been doing too little of?
+- [ ] What, ten years from now, do you think you’ll  look back and decide you’ve been doing too much of?
+- [ ] What, thinking over the last ten years, have been doing too little of?
+- [ ] What, thinking over the last ten years, have been doing too much of?
+- [ ] What person in your life do you wish you could get to know better?
+- [ ] Who is the first would you bring back from history, if given the chance?
+- [ ] Who is the last would you bring back from history, if given the chance?
+- [ ] Upon your death, if you could learn one secret of the universe, what would it be?
+- [ ] How important do you think grades are, in retrospect?
+- [ ] How important do you think a university degree is, in general?
+- [ ] Can you draw?
+- [ ] Have you ever learned to play any musical instruments?
+- [ ] Are you afraid of snakes?
+- [ ] Are you afraid of heights?
+- [ ] What is your biggest fear?
+- [ ] What makes you sure the path you’re on is the right one?
+- [ ] Are you afraid of success?
+- [ ] What would you attempt if you knew you could not fail?
